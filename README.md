@@ -5,4 +5,4 @@ Nice to meet you
 
 I love watching animes with 🍹
 
-Let's have fun!
+Let's have fun today!
